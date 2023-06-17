@@ -18,4 +18,4 @@ Sometimes I can be lost among the things I don't know like in this gif, but the 
 Thanks for your visit! See you later!
 
 ![half-life-freeman (1)](https://github.com/SelinAlagoz/SelinAlagoz/assets/76443564/62d6891f-b699-49c1-836c-22c4adcbb261)
-                          ![Visitor Count](https://profile-counter.glitch.me/{SelinAlagoz}/count.svg)
+                         
